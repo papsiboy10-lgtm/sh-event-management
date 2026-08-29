@@ -1,0 +1,2 @@
+# sh-event-management
+WE HELP TO SORT YOUR EVENT OUT WITHOUT STRESS
